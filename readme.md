@@ -1,3 +1,1 @@
-hallo aku anjas
-kelas a2
-
+tugas pbo
